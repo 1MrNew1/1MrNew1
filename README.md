@@ -11,3 +11,5 @@ Our awful states of living have left many  uneducated or stranded, taking the sp
 ### Jessica's ass is so fine said Jimy while Mark starred at Her ass questioning Integrals
 Stuying solutions without asking first is perhaps why most people find scientific subjects difficult or anything they haven't pondered about.
 Jimy's Mind was intruded with  thoughts perhaps how cool he would look as her boyfriend or how successful he would be if she envied him while Mark was thinking calculus. However we cant blame Jimy because its in fashion to think such thoughts and only nerds or prodigies are to be good at math and else must be cool by occupying themselves with garbage. We need to fight the trend of study for money and embrace study for and to fillfull our curiosity, new ideas and theories will come at greater quantities if we do so.
+
+### I blog about Quantum mechanics Oddities of life Computer science and bitch about society stay tuned :)
